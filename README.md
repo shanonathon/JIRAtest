@@ -3,7 +3,3 @@
 asdfasdfasdfadf
 adsfadfasdf
 asdfasdfasdfasdf
-asdfasdfasdfasdf
-adsfadfasdfadsfadfasdf
-asdfadfasdf
-asdfadfasdfasdf
